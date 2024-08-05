@@ -1,0 +1,5 @@
+- joy in the merely real, yudkowsky
+- dancing with the gods, eric s raymond
+- maybe some excerpts from replacing guilt by nate soares
+- the necessity of atheism, shelley
+- some songs from the rationalist solstice
